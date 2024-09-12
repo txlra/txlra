@@ -1,16 +1,31 @@
-## Hi there 👋
+↓↓↓↓↓最新入口↓↓↓↓↓
 
-<!--
-**txlra/txlra** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+点上方链接进入↑↑↑↑↑
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+王远还没反应过来就被推到了路边。
+
+在他的身后充斥着剧烈的撞击声和路人的惊呼尖叫。
+
+而这一切最终，又被巨大的爆炸声和冲天的火光浓烟淹没。
+
+第465章反派拿了炮灰真少爷剧本（29）
+
+“爸爸！”
+
+锦晏带着无尽的恐惧在噩梦中挣扎，守在窗边的谢镜满脸担忧，不知所措。
+
+他试图学着老头的样子叫醒锦晏，可却怎么都不行。
+
+就在谢镜打电话给艾伦让去找老头时，喻清棠从外面进来了，而老头就在他身后。
+
+“外公，晏晏……”
+
+喻清棠像是没看到谢镜一样，径直地来到床边，将被噩梦吓得满头大汗的锦晏抱了起来。
+
+他一边拿毛巾给锦晏擦额头一边叫她，“宝宝，快点醒过来，小叔带你去看爸爸……”
+
+话没说完，锦晏就睁开了眼睛。
+http://7h8k.top
+眼前的一切似乎还是模糊不清
